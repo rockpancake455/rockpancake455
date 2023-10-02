@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jacob herndon
+- 👋 Hi, I’m jacob herndon
 - 👀 I’m interested in cars and programing
 - 🌱 I’m currently learning im a freshman in high school so im trying to get good grads so that i can go to a collage
 - 💞️ I’m looking to collaborate on 
